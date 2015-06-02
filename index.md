@@ -1,0 +1,7 @@
+## Williams Landing community
+
+Website under construction. 
+
+In the meantime use our facebook page.
+
+[williamslanding](https://www.facebook.com/pages/Williams-Landing/941750069179333 "Williams Landing on Facebook")
